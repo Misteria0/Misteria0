@@ -8,7 +8,7 @@
 
 <sub> Games: Forsaken, CoD, Genshin, Grace, and Fnf
 
-<sub> Music: Do not ressurect (DNR), Altvevo, Savage ga$p, Gashum, eyesore, Grim salvo, The Living Tombstone and WYDROB (Ima assume anyone reading this has no idea who almost all ove these artists are) 
+<sub> Music: Do not ressurect (DNR), Altvevo, Savage ga$p, Gashum, eyesore, Grim salvo, The Living Tombstone and WYDROB (Ima assume anyone reading this has no idea who almost all of these artists are) 
 
 <sub> Look at this dumb kid 
 
