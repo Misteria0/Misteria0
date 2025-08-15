@@ -4,7 +4,7 @@
 
 <sub> **INT**: I like to hear forsaken hot takes so whisper me if you have any.
 
-<sub> Interest(Shows/Movies): Mob Pyshco, Beastars, Your lie in april, deamon slayer, Saiki k, JJK, MHA, A slient voice, anything Sonic realated, Magic and Muscles, Solo leveling, Detective Conan and more.
+<sub> Interest(Shows/Movies): Mob Pyshco, Beastars, Your lie in april, deamon slayer, Saiki k, JJK, MHA, A slient voice, anything Sonic realated, Magic and Muscles, Solo leveling, Detective Conan, Zom 100, DanDanDan, TSHD, skate8 and more.
 
 <sub> Games: Forsaken, CoD, Genshin, Grace, and Fnf
 
