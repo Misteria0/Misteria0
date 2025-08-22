@@ -4,7 +4,7 @@
 
 <sub> **INT**: I like to hear forsaken hot takes so whisper me if you have any.
 
-<sub> Iwc Tut user sine loads of y'all stink
+<sub> **IWC:** Tut user sine loads of y'all stink. And emotional people cause y'all are too much
 
 <sub> **Interests** (bolded ones are my favourites)
 
