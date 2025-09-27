@@ -2,7 +2,6 @@
 
 <sub> **BYI**: I struggle with empathy so please don't vent to me. I can be insensitive so tell me when I'm being mean or sum i dunno. I'm  bad at keeping conversations going but I can start them (pls int first :,)) If I take long to respond it's because I don't have a response I am not ignoring you I just don't know what to say. Sometimes I usually miss jokes or don't understand a lot of things. Sorry if you interact with me and you need tone tags since I don't really know how to use them. I'm not very into sexual jokes. Not that it's very bothering I just don't know how to respond to them. You can make the jokes but I personally will not.
 
-<sub> I zon't reallyz have kinz or irlz butz onez kin I kinda havez is shed (forsaken) and Metalz (sonic)
 
 <sub> **INT**: I like to hear forsaken hot takes so whisper me if you have any. I also like talking to people so go ahead. 
 
