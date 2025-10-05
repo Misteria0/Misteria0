@@ -13,7 +13,7 @@
 
 <sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, **Outcome memories** and Fnf
 
-<sub> Music: **Do not ressurect**(DNR), Altvevo, Savage ga$p, Gashum, eyesore, Grim salvo, The Living Tombstone and WYDROB (Ima assume anyone reading this has no idea who almost all of these artists are) 
+<sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **D4vd**(Or at least I used to), Anxchy and WYDROB (Ima assume anyone reading this has no idea who almost all of these artists are. Be aware I do not agree with some of these wild lyrics 😭) 
 
 <sub> Look at this dumb kid 
 
