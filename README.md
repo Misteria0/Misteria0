@@ -17,4 +17,5 @@
 
 <sub> Look at this dumb kid 
 
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/ef08de45-30a5-4fd6-a47b-4e62ec60d4dc" />
+<img width="600" height="600" alt="image" src="https://i.pinimg.com/736x/99/75/e7/9975e7a021c98ef52685e3a09dc6b36d.jpg" />
+
