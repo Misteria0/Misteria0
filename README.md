@@ -16,5 +16,5 @@
 
 <sub> Look at this dumb kid 
 
-<img width="600" height="600" alt="image" src="https://i.pinimg.com/736x/99/75/e7/9975e7a021c98ef52685e3a09dc6b36d.jpg" />
+<img width="600" height="600" alt="image" src=https://i.pinimg.com/736x/93/5f/b3/935fb3a219a4f60bf9359e49a4a57e26.jpg />
 
