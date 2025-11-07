@@ -1,12 +1,12 @@
 <sub> I go by Misty 
 
-<sub> **BYI**: I struggle with empathy so please don't vent to me. I can be insensitive so tell me when I'm being mean or sum i dunno. I'm  bad at keeping conversations going but I can start them (pls int first :,)) If I take long to respond it's because I don't have a response I am not ignoring you I just don't know what to say and most likely won't say anything after a while to figure out a good answer. Sometimes I usually miss jokes or don't understand a lot of things. Sorry if you interact with me and you need tone tags since I don't really know how to use them. My personality shifts DRASTICLLY depending on who I'm talking (Usally to act more like who i'm talking to) So I will probably act different with you depending on how much I know you. I'm not very into sexual jokes. Not that it's very bothering but it makes me a bit uncomfortable at times.I usually don't know how to respond to them and probably will not respond to them.
+<sub> **BYI**: I struggle with empathy so please don't vent to me. I can be insensitive so tell me when I'm being mean or sum i dunno. I'm  bad at keeping conversations going but I can start them (pls int first :,)) If I take long to respond it's because I don't have a response I am not ignoring you I just don't know what to say and most likely won't say anything after a while to figure out a good answer. Sometimes I usually miss jokes or don't understand a lot of things. Sorry if you interact with me and you need tone tags since I don't really know how to use them. My personality shifts DRASTICLLY depending on who I'm talking (Usally to act more like who i'm talking to) So I will probably act different with you depending on how much I know you.
 
-<sub> **INT**: I like to hear forsaken hot takes so whisper me if you have any. I also like talking to people so go ahead. 
+<sub> **INT**: I like to hear forsaken hot takes so whisper me if you have any. I also like talking to people so go ahead (Sometimes on not in the mood though) 
 
-<sub> **IWC:** Tut user sine loads of y'all stink.
+<sub> **IWC:** hypersexualizes please don't make sexual jokes towards/directed at me
 
-<sub> **Interests** (bolded ones are my favourites)
+<sub> **Interests:**
 
 <sub> (Shows/Movies): **Mob Pyshco**, **Beastars**, Your lie in april, deamon slayer, **Saiki k**, JJK, MHA, A slient voice, **anything Sonic realated**, **Magic and Muscles**, One punch man, Solo leveling, Detective Conan, Zom 100, DanDanDan, TSHD, skate8, **TADC**, The Umbrella Academy, Scott Pilgrim, **Ninjago** and more.
 
