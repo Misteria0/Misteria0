@@ -16,7 +16,7 @@
 
 <sub> Look at this dumb kid 
 
-<img width="600" height="600" alt="image" src=https://i.pinimg.com/736x/93/5f/b3/935fb3a219a4f60bf9359e49a4a57e26.jpg />
+<img width="600" height="600" alt="image" src= https://i.pinimg.com/736x/58/45/99/584599d20c2ae80183a73dc1deca50b7.jpg />
 
 <sub> when y/n pants turn red so she genuinely needs a heavy flow pad and u genuinely had a tampon up you hole for 8 hrs so the 6'7 alpha mafia CEO genuinely rips the tampon out your hole and genuinely gives it to y/n but u genuinely gave the 6'7 alpha mafia CEO a nasty look so now he's gonna genuinely slime you so you genuinely gotta accept your fate cause your genuinely gonna die today
 
