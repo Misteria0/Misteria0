@@ -14,7 +14,6 @@
 
 <sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **D4vd**(Or at least I used to), Anxchy and WYDROB (Ima assume anyone reading this has no idea who almost all of these artists are. Be aware I do not agree with some of these wild lyrics 😭) 
 
-<sub> Look at this dumb kid 
 
 <img width="600" height="600" alt="image" src= https://i.pinimg.com/736x/58/45/99/584599d20c2ae80183a73dc1deca50b7.jpg />
 
