@@ -4,7 +4,7 @@
 
 <sub> **INT**: I like to hear forsaken hot takes so whisper me if you have any. I also like talking to people so go ahead (Sometimes on not in the mood though) 
 
-<sub> **IWC:** hypersexualizes please don't make sexual jokes towards/directed at me
+<sub> **IWC:** hypersexualizes please don't make sexual jokes towards/directed at me. Sensitive people cause I ain't dealing wit allat 
 
 <sub> **Interests:**
 
