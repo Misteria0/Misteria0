@@ -16,6 +16,3 @@
 
 
 <img width="600" height="600" alt="image" src= https://i.pinimg.com/1200x/ea/1b/17/ea1b176b0a904bdb3c5bdd41dced7340.jpg />
-
-<sub> when y/n pants turn red so she genuinely needs a heavy flow pad and u genuinely had a tampon up you hole for 8 hrs so the 6'7 alpha mafia CEO genuinely rips the tampon out your ass and genuinely gives it to y/n but u genuinely gave the 6'7 alpha mafia CEO a nasty look so now he's gonna genuinely slime you so you genuinely gotta accept your fate cause you're genuinely gonna die today
-
