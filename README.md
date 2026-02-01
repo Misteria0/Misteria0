@@ -2,8 +2,7 @@
 
 <sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum i dunno. Or I may just genuinly believe I didn't say anything wrong so mb. I'm  bad at keeping conversations going but I can start them. If I take long to respond it's because I don't have a response I am not ignoring you I just don't know what to say and most likely won't say anything after a while to figure out a good answer. Sometimes I usually miss jokes or don't understand a lot of things. Sorry if you interact with me and you need tone tags since I don't really know how to use them.
 
-<sub> **IWC:** hypersexualizes please don't make sexual jokes towards/directed at me. Sensitive people cause I ain't dealing wit allat. And proshippers y'all are so weird 😭 tryna justify your nasty ahh ships 💔 
-
+<sub> **IWC:** hypersexualizes please don't make sexual jokes towards/directed at me. Sensitive people cause I ain't dealing wit allat. And darkshippers 
 <sub> **Interests:**
 
 <sub> (Shows/Movies): **Mob Pyshco**, **Beastars**, Your lie in april, deamon slayer, **Saiki k**, JJK, MHA, A slient voice, **anything Sonic realated**, **Magic and Muscles**, One punch man, Solo leveling, Detective Conan, Zom 100, DanDanDan, TSHD, skate8, **TADC**, The Umbrella Academy, Scott Pilgrim, **Ninjago**, **spiderman into and across the spiderverse** and more.
