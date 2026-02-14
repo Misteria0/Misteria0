@@ -5,7 +5,7 @@
 <sub> **IWC:** hypersexualizes please don't make sexual jokes towards/directed at me. Sensitive people cause I ain't dealing wit allat. And darkshippers 
 <sub> **Interests:**
 
-<sub> (Shows/Movies): **Mob Pyshco**, **Beastars**, Your lie in april, deamon slayer, **Saiki k**, JJK, MHA, A slient voice, **anything Sonic realated**, **Magic and Muscles**, One punch man, Solo leveling, Detective Conan, Zom 100, DanDanDan, TSHD, skate8, **TADC**, The Umbrella Academy, Scott Pilgrim, **Ninjago**, **spiderman into and across the spiderverse** and more.
+<sub> (Shows/Movies): **Mob Pyshco**, **Beastars**, Your lie in april, deamon slayer, **Saiki k**, JJK, MHA, A slient voice, **anything Sonic realated**, **Magic and Muscles**, One punch man, Solo leveling, **South park!!!** Detective Conan, Zom 100, DanDanDan, TSHD, skate8, **TADC**, The Umbrella Academy, Scott Pilgrim, **Ninjago**, **spiderman into and across the spiderverse** and more.
 
 <sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, **Outcome memories** and Fnf
 
