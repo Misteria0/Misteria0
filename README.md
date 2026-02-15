@@ -7,9 +7,9 @@
 
 <sub> (Shows/Movies): **Mob Pyshco**, **Beastars**, Your lie in april, deamon slayer, **Saiki k**, JJK, MHA, A slient voice, **anything Sonic realated**, **Magic and Muscles**, One punch man, Solo leveling, **South park!!!** Detective Conan, Zom 100, DanDanDan, TSHD, skate8, **TADC**, The Umbrella Academy, Scott Pilgrim, **Ninjago**, **spiderman into and across the spiderverse** and more.
 
-<sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, **Outcome memories** and Fnf
+<sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, and Fnf
 
-<sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Roar**, **DigBar**, **D4vd**(Or at least I used to), Anxchy and WYDROB (Ima assume anyone reading this has no idea who almost all of these artists are. Be aware I do not agree with some of these wild lyrics 😭) 
+<sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Roar**, **DigBar**, **D4vd**, Anxchy and WYDROB (Ima assume anyone reading this has no idea who almost all of these artists are. Be aware I do not agree with some of these wild lyrics 😭) 
 
 
 <img width="600" height="600" alt="image" src= https://i.pinimg.com/1200x/ea/1b/17/ea1b176b0a904bdb3c5bdd41dced7340.jpg />
