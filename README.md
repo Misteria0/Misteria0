@@ -1,6 +1,6 @@
 <sub> I go by Misty 
 
-<sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum i dunno. Or I may just genuinly believe I didn't say anything wrong so mb. I'm  bad at keeping conversations going but I can start them. If I take long to respond it's because I don't have a response I am not ignoring you I just don't know what to say and most likely won't say anything after a while to figure out a good answer. Sometimes I usually miss jokes or don't understand a lot of things. Sorry if you interact with me and you need tone tags since I don't really know how to use them.
+<sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum i dunno. Or I may just genuinly believe I didn't say anything wrong so mb. If I take long to respond it's because I don't have a response I am not ignoring you I just don't know what to say and most likely won't say anything after a while to figure out a good answer. Sometimes I usually miss jokes or don't understand a lot of things. 
 
 <sub> **IWC:** hypersexualizes, sensitive people and darkshippers 
 
