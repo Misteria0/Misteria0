@@ -8,7 +8,7 @@
 
 <sub> (Shows/Movies): **Mob Pyshco**, **Beastars**, Your lie in april, deamon slayer, **Saiki k**, JJK, MHA, A slient voice, **anything Sonic realated**, **Magic and Muscles**, One punch man, Solo leveling, **South park!!!** Detective Conan, Zom 100, DanDanDan, TSHD, skate8, **TADC**, The Umbrella Academy, Scott Pilgrim, **Ninjago**, **spiderman into and across the spiderverse** and more.
 
-<sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, and Fnf
+<sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, Purgatory, **TSOT+TFBW** and **Fnf**
 
 <sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Roar**, **DigBar**, **D4vd**, Anxchy and WYDROB 
 
