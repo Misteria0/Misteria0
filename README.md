@@ -1,6 +1,6 @@
 <sub> I go by Misty 
 
-<sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum I dunno. Or I may just genuinly believe I didn't say anything wrong so mb. I'm kinda slow ngl
+<sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum I dunno, or I may just genuinly believe I didn't say anything wrong so mb. I'm kinda slow ngl
 
 <sub> **IWC:** hypersexualizes, sensitive people and darkshippers 
 
