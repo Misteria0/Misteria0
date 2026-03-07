@@ -8,7 +8,7 @@
 
 <sub> (Shows/Movies): **Beastars**, Saiki k, anything Sonic realated, **South park**, **TADC**, The Umbrella Academy, Ninjago, spiderman into and across the spiderverse and more (These are my favs).
 
-<sub> Games: **Forsaken**, **CoD**, Genshin, Grace, BloxTales, Purgatory, **TSOT+TFBW** and **Fnf**
+<sub> Games: **Forsaken**, **CoD**, Purgatory, **TSOT+TFBW** and **Fnf**
 
 <sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Roar**, **DigBar**, **D4vd**, Anxchy and WYDROB 
 
