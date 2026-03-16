@@ -2,7 +2,7 @@
 
 <sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum I dunno, or I may just genuinly believe I didn't say anything wrong so mb. I'm kinda slow ngl
 
-<sub> **IWC/DNI:** hypersexualizes, sensitive people, darkshippers and hazbin hotel fans(How do people genuinely  like that show no offense) 
+<sub> **IWC/DNI:** hypersexualizes, sensitive people, darkshippers and hazbin hotel fans (How do people genuinely  like that show no offense) 
 
 <sub> **Interests:**
 
