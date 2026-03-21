@@ -10,7 +10,7 @@
 
 <sub> Games: **Forsaken**, **CoD**, Purgatory, **TSOT+TFBW** and **Fnf**
 
-<sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Roar**, **DigBar**, **D4vd**, Anxchy and WYDROB 
+<sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Late night drive home**, RAYE, [[LUCA]], **The Rare occasions** **Roar**, **DigBar**, **D4vd**, Anxchy and WYDROB 
 
 <img width="500" height="500" alt="image" src= https://i.postimg.cc/fLC8qcvy/Screenshot-2026-03-14-5-17-34-AM-removebg-preview.png />
 
