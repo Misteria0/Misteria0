@@ -1,3 +1,7 @@
+
+
+<img width="500" height="500" alt="image" src= https://i.postimg.cc/kgyG4vbL/Screenshot-2026-03-26-2-14-47-PM-removebg-preview.png />
+
 <sub> I go by Misty 
 
 <sub> **BYI**:  I can be insensitive so tell me when I'm being mean or sum I dunno, or I may just genuinly believe I didn't say anything wrong so mb. I'm kinda slow ngl
@@ -12,5 +16,4 @@
 
 <sub> Music: **Do not ressurect**(DNR), **Altvevo**, Savage ga$p, Gashum, eyesore, **Grim salvo**, The Living Tombstone, **Late night drive home**, RAYE, [[LUCA]], **The Rare occasions** Roar, **DigBar**, **D4vd**, Anxchy and WYDROB 
 
-<img width="500" height="500" alt="image" src= https://i.postimg.cc/kgyG4vbL/Screenshot-2026-03-26-2-14-47-PM-removebg-preview.png />
 
