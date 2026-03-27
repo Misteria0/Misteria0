@@ -4,11 +4,18 @@
 </p>
 
 <p align="center">
-<sub> I go by Misty or Misterion 
+<sub> ★ I go by Misty or Misterion ★
 </p>
   
 <div align="center">
 
-<sub> [straw](https://omgukilledkenny.straw.page)
+<sub> [straw](https://omgukilledkenny.straw.page)★·.·´¯`·.·★[ata](https://misty.atabook.org/)
 
 </div>
+
+
+
+
+
+
+
