@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="455" height="548" alt="image" src= https://i.postimg.cc/SRD8pMFj/Screenshot-2026-03-29-6-59-49-AM.png />
+<img width="355" height="448" alt="image" src= https://i.postimg.cc/SRD8pMFj/Screenshot-2026-03-29-6-59-49-AM.png />
 </p>
 
 <p align="center">
