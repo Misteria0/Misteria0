@@ -9,8 +9,7 @@
   
 <div align="center">
 
-<sub> [straw](https://stanisunderrated.straw.page/)★·.·´¯`·.·★[ata](https://misty.atabook.org/)
-
+<sub> ★[straw](https://stanisunderrated.straw.page/)★
 </div>
 
 
