@@ -1,5 +1,5 @@
 <p align="center">
-<img width="500" height="500" alt="image" src= https://i.postimg.cc/QVGdLBRp/image-removebg-preview-(79).png />
+<img width="500" height="500" alt="image" src= https://files.catbox.moe/exyn39.png />
 </p>
 
 <p align="center">
