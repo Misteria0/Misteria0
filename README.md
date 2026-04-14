@@ -8,7 +8,7 @@
   
 <div align="center">
 
-<sub> ★[straw](https://stansprettycool.straw.page) ... [rentry](https://rentry.co/uahgue7g)★
+<sub> ★[straw](https://stansprettycool.straw.page) ... [rentry](https://rentry.co/zem0le)★
 </div>
 
 
