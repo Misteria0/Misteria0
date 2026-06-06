@@ -1,21 +1,11 @@
 
-
 <p align="center">
-<img width="440" height="419" alt="Screenshot 2026-05-09 4 19 00 AM-Photoroom" src="https://github.com/user-attachments/assets/93d08704-12be-440d-804b-b0dabd441201" />
+<img width="780" height="720" alt="62330120870" src="https://github.com/user-attachments/assets/aa1c28e7-6ac0-4ead-82fe-5c886b1d8977" />
 </p>
 
-<p align="center">
-<sub> ★ I go by Misty or Misterion ★
-</p>
+
   
 <div align="center">
 
 <sub> ★[straw](https://stansprettycool.straw.page) ... [rentry](https://rentry.co/zem0le)★
 </div>
-
-
-
-
-
-
-
