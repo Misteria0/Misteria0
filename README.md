@@ -1,11 +1,9 @@
 
+
 <p align="center">
-<img width="520" height="480" alt="62330120870" src="https://github.com/user-attachments/assets/aa1c28e7-6ac0-4ead-82fe-5c886b1d8977" />
-</p>
-
-
-  
+<img alt="62330120870" src="https://files.catbox.moe/gxl2af.png" />
+</p>  
 <div align="center">
 
-<sub> ★[straw](https://stansprettycool.straw.page) ... [rentry](https://rentry.co/zem0le)★
+★[straw](https://stansprettycool.straw.page) ... [rentry](https://rentry.co/zem0le)★
 </div>
