@@ -1,7 +1,6 @@
 
 <p align="center">
-<img alt= width="341" height="361" "62330120870" src="https://files.catbox.moe/gxl2af.png" />
-</p>
+<img  <img alt="Screenshot_2026-06-20_1,02,45_PM-removebg-preview (2)-Picsart-AiImageEnhancer" src="https://github.com/user-attachments/assets/0176562d-6ff1-4ec3-b560-7c6b2d08546b" />
 
 <div align="center">
   
