@@ -1,6 +1,7 @@
 
 <p align="center">
-<img width="420" height="300" alt="499da35df6754eeba48007630245ab3c" src="https://github.com/user-attachments/assets/dd1310e4-fe31-4dec-9cc3-bd7a781b75c0" />
+<img width="573" height="436" alt="Screenshot_2026-06-20_8 18 27_PM-removebg-preview" src="https://github.com/user-attachments/assets/8bdd1a0f-4722-4efb-9fb0-f6839be37a3b" />
+
 <div align="center">
   
 <sub>★[straw](https://stansprettycool.straw.page) ... [rentry](https://rentry.co/zem0le)★
