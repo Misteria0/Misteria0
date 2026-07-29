@@ -1,10 +1,10 @@
 
 
-<p align="center">
-<img  alt="image-removebg-preview - 2026-06-22T171203 466" src="https://github.com/user-attachments/assets/c7cdb8fc-8046-4b1e-b076-de441a5488ee" />
 
+<p align="center">
+<img width="533" height="614" alt="download (9)" src="https://github.com/user-attachments/assets/91a2854a-bf93-48d2-b03f-90a4da6f42b8" />
 
 <div align="center">
   
-<sub>★[straw](https://mobbutton.straw.page/) ... [rentry](https://rentry.co/zem0le)★
+<sub>★[straw](https://kenny-0.straw.page/) ... [rentry](https://rentry.co/zem0le)★
 </div>
