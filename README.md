@@ -6,5 +6,5 @@
 
 <div align="center">
   
-<sub>★[straw](https://kenny-0.straw.page/) ... [rentry](https://rentry.co/zem0le)★
+<sub>★[straw](https://kenny-0.straw.page/)  ༚ 𖦹  [rentry](https://rentry.co/zem0le)★
 </div>
