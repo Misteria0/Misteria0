@@ -1,9 +1,7 @@
 <div align="center">
 <sub> Some people gotta die (in Fortnite)
 </div>
-<div align="center">
-<sub> You should sign my ata :) 
-</div>
+
 
 
 <p align="center">
