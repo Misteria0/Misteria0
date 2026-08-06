@@ -11,5 +11,6 @@
 
 <div align="center">
   
-<sub>★[straw](https://kenny-0.straw.page/)  ༚ 𖦹  [rentry](https://rentry.co/zem0le)★
+<sub> [straw](https://kenny-0.straw.page/)  <img width="21" height="21" alt="7kxdia" src="https://github.com/user-attachments/assets/b90f232e-d796-48f6-8a3d-c585bd00cab7" />  [rentry](https://rentry.co/zem0le)
+ 
 </div>
