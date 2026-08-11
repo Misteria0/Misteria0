@@ -18,11 +18,7 @@
 </div>
 
 
-<div align="center">
 
- <sub> [pt-players](https://github.com/pt-players), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@fans-town](https://github.com/fans-town), [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-fashion](https://github.com/pt-fashion), [@pt-medals](https://github.com/pt-medals), [@title-town](https://github.com/title-town)
-
- </div>
 
 
 
