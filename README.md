@@ -1,5 +1,6 @@
+
 <div align="center">
-<img  alt="Screenshot_2026-08-12_6 21 27_AM-removebg-preview" src="https://github.com/user-attachments/assets/a87e6332-1af9-4395-9df6-68479836fb4b" />
+<img  alt="Screenshot_2026-08-12_6 48 53_AM-removebg-preview" src="https://github.com/user-attachments/assets/dce3dd29-787e-48a1-9073-1a70aa162785" />
 </div>
 
 <img  alt="Screenshot_2026-08-12_5 36 44_AM-removebg-preview (1)" src="https://github.com/user-attachments/assets/b9661df3-711e-4758-b112-c28fc87c8420" />
