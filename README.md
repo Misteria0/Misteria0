@@ -5,7 +5,7 @@
 
 <div align="center">
   
-$\color{#97b0a4}\text{: ・ෆ・┈・┈・ᕱ⑅ᕱ・┈・┈・ෆ・ :}$
+$\color{#453f32}\text{: ・ෆ・}$ $\color{#7b6954}\text{┈・}$ $\color{#96b0a3}\text{┈・}$  $\color{#96b0a3}\text{ᕱ⑅ᕱ}$  $\color{#96b0a3}\text{┈・}$  $\color{#7b6954}\text{┈・}$ $\color{#453f32}\text{: ・ෆ・}$
   </div>
 <div align="center">
 <details>
