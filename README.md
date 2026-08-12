@@ -4,6 +4,10 @@
 </div>
 
 <div align="center">
+  
+$\color{#97b0a4}\text{: ・ෆ・┈・┈・ᕱ⑅ᕱ・┈・┈・ෆ・ :}$
+  </div>
+<div align="center">
 <details>
   <summary>$\color{#6b5e46}\text{pt award stuff}$</summary>
   
