@@ -2,6 +2,8 @@
 <img  alt="Screenshot_2026-08-12_6 21 27_AM-removebg-preview" src="https://github.com/user-attachments/assets/a87e6332-1af9-4395-9df6-68479836fb4b" />
 </div>
 
+<img  alt="Screenshot_2026-08-12_5 36 44_AM-removebg-preview (1)" src="https://github.com/user-attachments/assets/b9661df3-711e-4758-b112-c28fc87c8420" />
+
   <div align="center">
 <a href="https://rentry.co/zem0le" align="left">
 <img width="227" height="130" alt="Screenshot_2026-08-12_5 17 40_AM-removebg-preview" src="https://github.com/user-attachments/assets/3066b0ba-7ecb-4172-8032-fb417efd5864" />
