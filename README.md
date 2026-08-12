@@ -9,7 +9,7 @@ $\color{#453f32}\text{: ・ෆ・}$ $\color{#7b6954}\text{┈・}$ $\color{#96b0
   </div>
 <div align="center">
 <details>
-  <summary>$\color{#6b5e46}\text{pt award stuff}$</summary>
+  <summary>$\color{#6b5e46}\text{pt award shit}$</summary>
   
    <sub> [pt-players](https://github.com/pt-players), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), [@fans-town](https://github.com/fans-town), [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-of-awesomeness](https://github.com/pt-of-awesomeness), [@pt-fashion](https://github.com/pt-fashion), [@pt-medals](https://github.com/pt-medals), [@title-town](https://github.com/title-town)
 
