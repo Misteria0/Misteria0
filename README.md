@@ -30,7 +30,7 @@
 
   <div align="center">
     
-$\color{#453f32}\text{: ・ෆ・}$ $\color{#7b6954}\text{┈・}$ $\color{#96b0a3}\text{┈・}$  $\color{#b6c4be}\text{ᕱ⑅ᕱ}$  $\color{#96b0a3}\text{┈・}$  $\color{#7b6954}\text{┈・}$ $\color{#453f32}\text{ ・ෆ・:}$
+$\color{#453f32}\text{: ・ෆ・}$ $\color{#7b6954}\text{┈・}$ $\color{#96b0a3}\text{┈・}$  $\color{#b6c4be}\text{ᕱ⑅ᕱ}$  $\color{#96b0a3}\text{・┈}$  $\color{#7b6954}\text{・┈}$ $\color{#453f32}\text{ ・ෆ・:}$
 
   </div>
   
