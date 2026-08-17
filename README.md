@@ -4,14 +4,14 @@
 
 <table border="0" cellpadding="0" cellspacing="0" width="50%">
   <tr>
-    <!-- COLUMN 1: Your Large Character Artwork -->
+    <!-- Large-->
     <td valign="middle" width="35%">
         <img src="https://github.com/user-attachments/assets/dce3dd29-787e-48a1-9073-1a70aa162785" alt="Screenshot_2026-08-12_5 17 40_AM-removebg-preview" width="95%">
       </a>
     </td>
-    <!-- COLUMN 2: Space between columns so they don't touch -->
+    <!-- Space  -->
     <td width="5%"></td>
-    <!-- COLUMN 3: Your 3 Custom Stamp Buttons Stacked -->
+    <!-- Stacked -->
     <td valign="middle" width="15%" align="center">
       <a href="https://rentry.co/zem0le">
         <img src="https://github.com/user-attachments/assets/3066b0ba-7ecb-4172-8032-fb417efd5864" alt="Screenshot_2026-08-12_5 17 53_AM-removebg-preview" width="100%" style="max-width: 20px; display: block; margin-bottom: 15px;">
