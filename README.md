@@ -19,7 +19,7 @@
       <a href="https://000.atabook.org/">
         <img src="https://github.com/user-attachments/assets/6c13c0ef-0395-4ae3-aca2-e7e80af83a5f" alt="Atabook" width="100%" style="max-width: 20px; display: block; margin-bottom: 15px;">
       </a>
-      <a href="https://kenny-0.straw.page/">
+      <a href="https://allmenarecrematedequal.straw.page/">
         <img src="https://github.com/user-attachments/assets/cfe43976-2cae-4566-a3fb-2ba77c9bb427" alt="Screenshot_2026-08-12_5 17 27_AM-removebg-preview" width="100%" style="max-width: 20px; display: block;">
       </a>
     </td>
